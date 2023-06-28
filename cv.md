@@ -13,7 +13,7 @@ I have experience in trading and banking
 ## Education
 University of Economics (completed higher education, Bachelor's degree)
 
-## Langage
+## Language
 English - B1+
 Russian - native
 German - B1+
