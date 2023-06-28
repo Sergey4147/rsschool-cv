@@ -1,4 +1,4 @@
-# Sergey Shtertser
+# Sergej Sterzer
 
 ## Contact me
 Phone number: +7701 066 66 65
